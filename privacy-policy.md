@@ -32,5 +32,3 @@
 
   6. CONTACTO
   Para consultas sobre esta política: salvagauchat@gmail.com
-
-  ---
